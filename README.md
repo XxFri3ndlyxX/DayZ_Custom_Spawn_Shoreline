@@ -11,7 +11,7 @@ The only island that was close was Chernarus.
 
 Once you arrive on the shore, you soon realized that your are on your own as it's the end of the world.
 
-Zombies are real. 
+Your worst nightmare comes to life. Zombies are real. There is no doubt about that.
 
 You MUST do everything in your power to survive.
 
